@@ -1,16 +1,22 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**YachiFou/YachiFou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![typing](https://readme-typing-svg.herokuapp.com?font=Poppins&size=22&duration=4000&pause=1000&color=FF9FF3&center=true&vCenter=true&width=500&lines=Welcome+to+my+GitHub!;Nice+to+meet+you!;Have+a+beautiful+day+💖)
 
-Here are some ideas to get you started:
+# 🎀 Hello everyone! 💕  
+I'm **Vy**, you can call me **Fou** or **Phou** ✨  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+### ⋆｡°✩ About me ✩°｡⋆  
+🌸 **Fandom:** Identity V, HSR, Naruto,..  
+🌷 I'm trust a girl, friendly and cute! *(I'm sure of that 💕)*  
+🚫 Do not copy my skin!  
+😤 Do not insult me ​​or my friends.  
+💞 **C + H**, Sign: **ata**
+
+---
+
+🌈 *Thanks for visiting my profile!* 🌈  
+💌 *Have a wonderful day!* 💌  
+
+</div>
