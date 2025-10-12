@@ -9,6 +9,7 @@ I'm **Vy**, you can call me **Fou** or **Phou** ✨
 
 ### ⋆｡°✩ About me ✩°｡⋆  
 🌸 **Fandom:** Identity V, HSR, Naruto,..  
+
 ⋆.I'm trust a girl, friendly and cute! *(I'm sure of that 💕)*  
 
 ⋆. Do not copy my skin!  
@@ -29,6 +30,7 @@ I'm **Vy**, you can call me **Fou** or **Phou** ✨
   <img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&size=40&duration=4000&pause=1000&color=FF8EDB&center=true&vCenter=true&width=600&lines=☁️+Good+Bye+☁️;💖+See+you+again!+💖" alt="goodbye">
   
   <br>
-  
-  <img src="https://i.imgur.com/JJ1gSpt.gif" width="400" alt="sky pink clouds gif">
+<!-- 🎀 Hello Kitty Mini Effect 🎀 -->
+<div align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Comic+Neue&size=18&duration=3000&pause=1000&color=FFB6C1&center=true&vCenter=true&width=250&lines=♡+Hello+Kitty+♡;💖+Good+Bye+💖;☁️+See+you+soon!+☁️" alt="hello kitty">
 </div>
