@@ -9,14 +9,17 @@ I'm **Vy**, you can call me **Fou** or **Phou** ✨
 
 ### ⋆｡°✩ About me ✩°｡⋆  
 🌸 **Fandom:** Identity V, HSR, Naruto,..  
-🌷 I'm trust a girl, friendly and cute! *(I'm sure of that 💕)*  
-🚫 Do not copy my skin!  
-😤 Do not insult me ​​or my friends.  
-💞 **C + H**, Sign: **ata**
+⋆.I'm trust a girl, friendly and cute! *(I'm sure of that 💕)*  
+
+⋆. Do not copy my skin!  
+
+⋆. Do not insult me ​​or my friends.  
+
+⋆. **C + H**, Sign: **ata**
 
 ---
 
-🌈 *Thanks for visiting my profile!* 🌈  
+🎀 *Thanks for visiting my profile!* 🎀  
 💌 *Have a wonderful day!* 💌  
 
 </div>
