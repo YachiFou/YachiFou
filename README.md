@@ -12,15 +12,17 @@ I'm **Vy**, you can call me **Fou** or **Phou** ✨
 
 🌸 **Fandom:** Identity V, HSR, Naruto,..  
 
-
 ᡣ𐭩 ANDREW KREISS MY BABY ξξ _⊗`
 
+---
 
 𐙚. Fav ship: Luchinor, TonTon, Antodrew(🎀), Florimatt, Rickrich or Richrick, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina.
 
+---
 
 ⋆.I'm just a girl, friendly and cute! *(I'm sure of that 💕)*  
 
+---
 
 ⋆. Do not copy my skin!  
 
