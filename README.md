@@ -16,7 +16,7 @@ I'm **Vy**, you can call me **Fou** or **Pho**
 
 ---
 
-𐙚. Fav ship: Hernarick(🔥), Richrick (FredRich), Luchinor, TonTon, Antodrew(🎀), Florimatt, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina.
+𐙚. Fav ship: Hernarich(🔥), Rickrich (FredRich), Luchinor, TonTon, Antodrew(🎀), Florimatt, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina.
 
 I don't dislike any particular couple, and I'd be happy to sit with your favorite couple (if you're respectful and polite).
 
