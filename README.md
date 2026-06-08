@@ -46,5 +46,3 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 
 <!-- 🌸 Sky Goodbye Effect 🌸 -->
 <div align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&size=40&duration=4000&pause=1000&color=FF8EDB&center=true&vCenter=true&width=600&lines=☁️+Good+Bye+☁️;💖+See+you+again!+💖" alt="goodbye">
-  
