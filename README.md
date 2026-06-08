@@ -1,8 +1,6 @@
 <div align="center">
 
-![typing](https://readme-typing-svg.herokuapp.com?font=Poppins&size=22&duration=4000&pause=1000&color=FF9FF3&center=true&vCenter=true&width=500&lines=Welcome+to+my+GitHub!;Nice+to+meet+you!;Have+a+beautiful+day+💖)
-
-![Ảnh](15e1c51e9d3cbca9761b4d0fe603da85)
+![Ảnh]( https://pin.it/2nEAlrmoJ)
 
 *"Tôi biết tôi yêu em có chút lôi thôi,  
 Tôi yêu em có làm em chút tội.  
