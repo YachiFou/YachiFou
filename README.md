@@ -38,10 +38,6 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 
 ⋆. Do not insult me ​​or my friends.  
 
-------
-⋆. **C + H**, Sign: **ata** >w<
-
-
 ---
 
 🎀 *Thanks for visiting my profile!* 🎀  
