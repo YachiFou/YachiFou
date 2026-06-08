@@ -1,6 +1,6 @@
 <div align="center">
 
-![Ảnh]( https://pin.it/2nEAlrmoJ)
+!( https://pin.it/2nEAlrmoJ)
 
 *"Tôi biết tôi yêu em có chút lôi thôi,  
 Tôi yêu em có làm em chút tội.  
