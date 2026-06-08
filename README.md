@@ -3,20 +3,20 @@
 ![typing](https://readme-typing-svg.herokuapp.com?font=Poppins&size=22&duration=4000&pause=1000&color=FF9FF3&center=true&vCenter=true&width=500&lines=Welcome+to+my+GitHub!;Nice+to+meet+you!;Have+a+beautiful+day+💖)
 
 # ۶ৎ Hello everyone!  
-I'm **Vy**, you can call me **Fou** or **Pho**  
+I'm **Vy**, you can call me **Fu** or **Pho**  
 
 ---
 
 ### ⋆｡°✩ About me !! ✩°｡⋆ 
 
 
-🌸 **Fandom:** Identity V, HSR, Naruto,..  
+🌸 **Fandom:** Identity V, Skycotl, Naruto,..  
 
 ᡣ𐭩 ANDREW KREISS BELOVED ξξ _⊗`
 
 ---
 
-𐙚. Fav ship: Hernarich(🔥), Rickrich (FredRich), Luchinor, TonTon, Antodrew(🎀), Florimatt, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina.
+𐙚. Fav ship: Hernarich(🔥), Rickrich (FredRich), Luchinor, TonTon, Antodrew(🎀), Florimatt, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
 
 I don't dislike any particular couple, and I'd be happy to sit with your favorite couple (if you're respectful and polite).
 
