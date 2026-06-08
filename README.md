@@ -2,8 +2,17 @@
 
 ![typing](https://readme-typing-svg.herokuapp.com?font=Poppins&size=22&duration=4000&pause=1000&color=FF9FF3&center=true&vCenter=true&width=500&lines=Welcome+to+my+GitHub!;Nice+to+meet+you!;Have+a+beautiful+day+💖)
 
-# ۶ৎ Hello everyone!  
-I'm **Vy**, you can call me **Fu** or **Pho**  
+![Ảnh](15e1c51e9d3cbca9761b4d0fe603da85)
+
+*"Tôi biết tôi yêu em có chút lôi thôi,  
+Tôi yêu em có làm em chút tội.  
+Tôi yêu em không bằng người khác,  
+Nhưng người khác cũng không yêu em như tôi."*
+
+---
+
+Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, **Fu**, whatever you like.
+  
 
 ---
 
@@ -34,7 +43,6 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 ---
 
 🎀 *Thanks for visiting my profile!* 🎀  
-💌 *Have a wonderful day!* 💌  
 
 </div>
 
