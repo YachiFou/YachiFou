@@ -23,8 +23,6 @@ Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me *
 
 🌸 **Fandom:** Identity V, Skycotl, Naruto,..  
 
-ᡣ𐭩 ANDREW KREISS BELOVED ξξ _⊗`
-
 ---
 
 𐙚. Fav ship: Hernarich(🔥), Rickrich (FredRich), Luchinor, TonTon, Antodrew(🎀), Florimatt, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
