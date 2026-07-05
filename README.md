@@ -25,7 +25,7 @@ Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me *
 
 ---
 
-𐙚. Fav ship: Hernarich(🔥), Rickrich (FredRich), Luchinor, TonTon, Antodrew(🎀), Florimatt, JackNaib. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
+𐙚. Fav ship: Hernarich(🔥), Luchinor, TonTon, Florimatt. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
 
 I don't dislike any particular couple, and I'd be happy to sit with your favorite couple (if you're respectful and polite).
 
