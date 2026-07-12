@@ -21,37 +21,11 @@ dư vụ đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo 
 
 *em nghiện vị đắng nơi môi, như nghiện người từng hôn em*
 
-Gã đứng đó, bên ban công nhìn em mà thở dài, giọng gã nặng trĩu và mang một nỗi buồn không thể diễn tả.
-
-"Em đã từng bảo bản thân mình ghét thuốc lá, tại sao bây giờ lại thay đổi đến thế?"
-
-Richard chỉ nhìn gã, đôi mắt vô hồn đầy mệt mỏi.
-
-"Vì nó khiến tôi cảm thấy thoải mái"
-
-Hernando giật lấy điếu thuốc, đôi mắt u sầu nhìn người con trai mình từng yêu.
-
-"Đừng hút nữa, có hại cho phổi của em"
-
-Giọng gã cất lên, Richard quay đầu nhìn về phía con phố xa xăm, em không trả lời ngay mà lảng tránh ánh mắt của Hernando.
-
-"Anh quan tâm làm gì? Dù gì anh cũng không cần một người như tôi"
-
-"Đúng, tôi không cần một người như Richard"
-
-"Tôi cần Richard"
-
-"..."
-
-"Đồ ngu"
-
-Hernando bị Richard mắng chửi, gã chẳng cảm thấy tức giận hay buồn bã gì cả, mà gã biết.. Một lần nữa, gã đã có lại được Richard.
-
 ![.]( 9998d6232fa3d999139a52e65baf399a.jpg)
 
 ---
 
-Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, **Fu**, whatever you like.
+Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, whatever you like.
  **Fandom:** Identity V, Skycotl, Naruto,..  
 𐙚. Fav ship: Hernarich, Luchinor, TonTon, Florimatt. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
 
