@@ -17,7 +17,7 @@ hơi thở em khao khát nụ hôn của làn khói mùi gỗ cháy trộn lơ l
 
 em nếm dư vị đắng và chát, như thưởng thức một món hải vị, nồng nơi cổ họng đến ngạt thở, vậy mà vẫn thèm, vẫn muốn thưởng thức - như kẻ si mê thứ độc dược ngọt ngào, như lần đầu tiên chạm vào bờ môi mềm mại của người tình.
 
-dư vụ đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo lét nơi môi, như điều chưa kịp nói một lời. đã từng có nụ hôn khiến em *điên dại*, khi hai linh hồn còn cận kề, dường như chẳng bao giờ rời xa..
+dư vị đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo lét nơi môi, như điều chưa kịp nói một lời. đã từng có nụ hôn khiến em *điên dại*, khi hai linh hồn còn cận kề, dường như chẳng bao giờ rời xa..
 
 *em nghiện vị đắng nơi môi, như nghiện người từng hôn em*
 
