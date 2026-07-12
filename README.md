@@ -11,21 +11,47 @@ Tôi yêu em có làm em chút tội.
 Tôi yêu em không bằng người khác,  
 Nhưng người khác cũng không yêu em như tôi."*
 
+Em là tình nhân với nicotinate..
+
+hơi thở em khao khát nụ hôn của làn khói mùi gỗ cháy trộn lơ lửng, tỏa ra từ đầu thuốc đang âm ỉ cháy. Phổi này thèm thuốc là hơn cả lời yêu.
+
+em nếm dư vị đắng và chát, như thưởng thức một món hải vị, nồng nơi cổ họng đến ngạt thở, vậy mà vẫn thèm, vẫn muốn thưởng thức - như kẻ si mê thứ độc dược ngọt ngào, như lần đầu tiên chạm vào bờ môi mềm mại của người tình.
+
+dư vụ đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo lét nơi môi, như điều chưa kịp nói một lời. đã từng có nụ hôn khiến em *điên dại*, khi hai linh hồn còn cận kề, dường như chẳng bao giờ rời xa..
+
+*em nghiện vị đắng nơi môi, như nghiện người từng hôn em*
+
+Gã đứng đó, bên ban công nhìn em mà thở dài, giọng gã nặng trĩu và mang một nỗi buồn không thể diễn tả.
+
+"Em đã từng bảo bản thân mình ghét thuốc lá, tại sao bây giờ lại thay đổi đến thế?"
+
+Richard chỉ nhìn gã, đôi mắt vô hồn đầy mệt mỏi.
+
+"Vì nó khiến tôi cảm thấy thoải mái"
+
+Hernando giật lấy điếu thuốc, đôi mắt u sầu nhìn người con trai mình từng yêu.
+
+"Đừng hút nữa, có hại cho phổi của em"
+
+Giọng gã cất lên, Richard quay đầu nhìn về phía con phố xa xăm, em không trả lời ngay mà lảng tránh ánh mắt của Hernando.
+
+"Anh quan tâm làm gì? Dù gì anh cũng không cần một người như tôi"
+
+"Đúng, tôi không cần một người như Richard"
+
+"Tôi cần Richard"
+
+"..."
+
+"Đồ ngu"
+
+Hernando bị Richard mắng chửi, gã chẳng cảm thấy tức giận hay buồn bã gì cả, mà gã biết.. Một lần nữa, gã đã có lại được Richard.
+
 ---
 
 Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, **Fu**, whatever you like.
-  
-
----
-
-### ⋆｡°✩ About me !! ✩°｡⋆ 
-
-
-🌸 **Fandom:** Identity V, Skycotl, Naruto,..  
-
----
-
-𐙚. Fav ship: Hernarich(🔥), Luchinor, TonTon, Florimatt. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
+ **Fandom:** Identity V, Skycotl, Naruto,..  
+𐙚. Fav ship: Hernarich, Luchinor, TonTon, Florimatt. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
 
 I don't dislike any particular couple, and I'd be happy to sit with your favorite couple (if you're respectful and polite).
 
@@ -38,9 +64,7 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 
 ---
 
-🎀 *Thanks for visiting my profile!* 🎀  
+ *Thanks for visiting my profile!* 
 
-</div>
 
-<!-- 🌸 Sky Goodbye Effect 🌸 -->
-<div align="center">
+div
