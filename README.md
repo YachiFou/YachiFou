@@ -11,7 +11,7 @@ Tôi yêu em có làm em chút tội.
 Tôi yêu em không bằng người khác,  
 Nhưng người khác cũng không yêu em như tôi."*
 
-Em là tình nhân với nicotinate..
+Em là tình nhân với nicotine..
 
 hơi thở em khao khát nụ hôn của làn khói mùi gỗ cháy trộn lơ lửng, tỏa ra từ đầu thuốc đang âm ỉ cháy. Phổi này thèm thuốc là hơn cả lời yêu.
 
