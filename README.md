@@ -47,6 +47,8 @@ Giọng gã cất lên, Richard quay đầu nhìn về phía con phố xa xăm, 
 
 Hernando bị Richard mắng chửi, gã chẳng cảm thấy tức giận hay buồn bã gì cả, mà gã biết.. Một lần nữa, gã đã có lại được Richard.
 
+![.]( 9998d6232fa3d999139a52e65baf399a.jpg)
+
 ---
 
 Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, **Fu**, whatever you like.
