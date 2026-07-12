@@ -21,9 +21,7 @@ dư vụ đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo 
 
 *em nghiện vị đắng nơi môi, như nghiện người từng hôn em*
 
-![.]( 9998d6232fa3d999139a52e65baf399a.jpg)
-
----
+https://youtu.be/heMYSOZoT3c?si=BAzGwyEcAG1E0st7
 
 Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, whatever you like.
  **Fandom:** Identity V, Skycotl, Naruto,..  
