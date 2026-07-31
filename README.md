@@ -25,7 +25,7 @@ https://youtu.be/heMYSOZoT3c?si=BAzGwyEcAG1E0st7
 
 Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, whatever you like.
  **Fandom:** Identity V, Skycotl, Naruto,..  
-𐙚. Fav ship: Hernarich, Luchinor, TonTon, Florimatt. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
+𐙚. Fav ship: EkkoJinx and Hernarich!!!, Luchinor, TonTon, Florimatt. Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina
 
 I don't dislike any particular couple, and I'd be happy to sit with your favorite couple (if you're respectful and polite).
 
