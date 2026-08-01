@@ -25,22 +25,13 @@ dư vị đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo 
 
 https://youtu.be/Ze-FKjZ1v1U?si=uF5lfoo0pLYICxuO
 
-Hello to everyonewho has visited my GitHub! My name is **Vy**, you can call me **Pho**, **Vy**, whatever you like.
- **Fandom:** Identity V, Skycotl, Naruto,..  
- 
-𐙚. Fav ship: EkkoJinx and Hernarich!!!
-
-**idv** - Luchinor, TonTon, Florimatt.
-
-**Naruto** - Obikaka,Kakuhida, NaruHina, MinaShina. Sakuhina.
-
-**JJBA** - DiegoHotpants, GyroJohnny.
+---
 
 I don't dislike any particular couple, and I'd be happy to sit with your favorite couple (if you're respectful and polite).
 
 ---
 
-⋆. Do not copy my skin!  
+⋆. Do not copy my skin! 
 
 
 ⋆. Do not insult me ​​or my friends.  
@@ -53,3 +44,4 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 
 
 div
+--
