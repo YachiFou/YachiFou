@@ -13,17 +13,41 @@ Tôi yêu em có làm em chút tội.
 Tôi yêu em không bằng người khác,  
 Nhưng người khác cũng không yêu em như tôi."*
 
-Em là tình nhân với nicotine..
+"Bạn có tin vào thần chết?
 
-hơi thở em khao khát nụ hôn của làn khói mùi gỗ cháy trộn lơ lửng, tỏa ra từ đầu thuốc đang âm ỉ cháy. Phổi này thèm thuốc là hơn cả lời yêu.
+Tin vào thiên đường cứu rỗi ai sống đời trong sạch?
 
-em nếm dư vị đắng và chát, như thưởng thức một món hải vị, nồng nơi cổ họng đến ngạt thở, vậy mà vẫn thèm, vẫn muốn thưởng thức - như kẻ si mê thứ độc dược ngọt ngào, như lần đầu tiên chạm vào bờ môi mềm mại của người tình.
+Tin đời như cuốn phim không hồi kết?
 
-dư vị đắng cay nơi đầu lưỡi, khiến em quên đi đốm đỏ leo lét nơi môi, như điều chưa kịp nói một lời. đã từng có nụ hôn khiến em *điên dại*, khi hai linh hồn còn cận kề, dường như chẳng bao giờ rời xa..
+Cứ đầu thai, đầu thai mãi không sao dừng chân?
 
-*em nghiện vị đắng nơi môi, như nghiện người từng hôn em*
+Không còn chốn thoát thân
 
-https://youtu.be/Ze-FKjZ1v1U?si=uF5lfoo0pLYICxuO
+Giờ tôi thấy sao ngày càng khó để tìm hạnh phúc đơn thuần giữa mỗi con người
+
+Hay giữa chính mình
+
+Chuyện thằng say
+
+Ôi điều điên rồ vô nghĩa mang tên tình yêu
+Dắt người ta tới đâu?
+
+Ly rượu cay
+
+Đêm hằng đêm hắn cứ cố quên đi tình yêu
+Nhưng lại nhớ rất nhiều
+
+Phải chăng sống trên đời chỉ để đi tìm ai đó thương hại ta mỗi đêm trường
+
+Bên chén nồng?
+
+**What goes around, comes around**
+
+Người ta gieo gió rồi gặt bão
+
+Để bây giờ lòng đầy sám hối
+
+Tới xưng tội bên tai tôi..."
 
 ---
 
