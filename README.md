@@ -31,10 +31,10 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 
 ---
 
-⋆. Do not copy my skin! 
+⋆. Don't copy my skin! 
 
 
-⋆. Do not insult me ​​or my friends.  
+⋆. Don't insult me ​​or my friends.  
 
 ---
 
