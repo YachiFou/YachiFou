@@ -4,7 +4,7 @@
   
   ..⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹..
 
-![]( 34c9b7edbd3f014bf99ef67dd6d64c66.jpg)
+![]( 20260712_193712.jpg)
 
   .. ⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹..
 
@@ -38,10 +38,10 @@ I don't dislike any particular couple, and I'd be happy to sit with your favorit
 
 ---
 
+![]( 34c9b7edbd3f014bf99ef67dd6d64c66.jpg)
+
  *Thanks for visiting my profile!* 
 
  Goodbye - Adiós - Tạm biệt.
 
-
-div
 --
